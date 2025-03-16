@@ -1,1 +1,1 @@
-Herizky/Herizky.github.io
+hi, welcome to my first project
